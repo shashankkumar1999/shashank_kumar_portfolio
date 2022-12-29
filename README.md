@@ -1,2 +1,2 @@
-# shashank_kumar_portfolio
+# Shashank Kumar Shri Venkatesh
 Digital Portfolio
